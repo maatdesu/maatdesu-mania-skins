@@ -7,6 +7,9 @@
 # [jimmyreturns withoutweeb](https://drive.google.com/file/d/1S531wVc8DnRxyjQMVYH2zMPhRsvgq-Th/view)
 ![](https://cdn.discordapp.com/attachments/829363965976510528/930833397616627762/screenshot887.jpg)
 
+# [- #-K- BANANAHIRA (arpiaFangirl edit)](https://drive.google.com/file/d/1k6R-Xxs-manz5j-XvpcdJMq69lj-TqCR/view?usp=sharing)
+![](https://cdn.discordapp.com/attachments/829363965976510528/937765650955395072/screenshot976.jpg)
+
 # [cool4kskin](https://drive.google.com/file/d/1S531wVc8DnRxyjQMVYH2zMPhRsvgq-Th/view)
 ![](https://cdn.discordapp.com/attachments/829363965976510528/930833397692104754/screenshot888.jpg)
 
